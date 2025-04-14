@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Scarlet-Color
-- 👀 I’m interested in Qianchang
+- 👀 I’m interested in 666
 - 🌱 I’m currently learning Java + C + HTML + CSS
 - 💞️ I’m looking to collaborate on Pigeons' island
 - 📫 How to reach me,you can reach me by QQ or WeChat,but the number let you guss.Or call me at 227048059@qq.com
